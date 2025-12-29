@@ -99,4 +99,4 @@ et chaque talent en lumière.*
 📧 Email : royaleluphotographie@email.com  
 📸 Facebook : https://facebook.com/royal elu photographie  
 🌐 Portfolio : https://royaleluphotographie.com
-   whatsapp : https://wa.me/22667274500
+🌐 Whatsapp : https://wa.me/22667274500
